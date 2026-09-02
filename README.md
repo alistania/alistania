@@ -24,7 +24,7 @@
   <summary> <img data-importer="image" width="50" src="https://github.com/user-attachments/assets/6509d188-b090-4b6a-9621-b7bef99e7121" /></summary>
   <br>
 
-oh ok hi im ali i think. strawpage [here](https://alistaniahazenxir.straw.page/) ok. im entj 8w7 835 so/sp if you understand that good for you. percussionist. ok bye
+oh ok hi im ali i think. strawpage [here](https://alistaniahazenxir.straw.page/) ok. im entj 3w4 385 so/sp if you understand that good for you. percussionist. ok bye
 
 </details>
 </div>
