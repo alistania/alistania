@@ -33,7 +33,7 @@ $${\color{#56333A}strawpage\space in\space the\space arrow\space ooooo}$$
   </p>
 
   <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=77crescentmoon&style=flat-square&color=393940&label=blacksorrows" alt="profile view counter" width="120" align="center">
+  <img src="https://komarev.com/ghpvc/?username=alistania&style=flat-square&color=393940&label=blacksorrows" alt="profile view counter" width="120" align="center">
 
 <p align="center">
   <img data-importer="image" width="500" src="https://github.com/user-attachments/assets/b16fb111-8b04-4d3a-bb52-e787e8352481" />
